@@ -10,6 +10,8 @@ que se puede hacer en todos los niveles de práctica.
 
 Beneficios: 
 
+Mejora el sistema respiratorio y circulatorio, Flexiona las articulaciones, 
+Tonifica todo el cuerpo, Mejora la estabilidad y el equilibrio, Reduce la rigidez en los hombros y el cuello. 
 
 
 Instrucciones: 
