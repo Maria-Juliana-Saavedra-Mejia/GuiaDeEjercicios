@@ -1,40 +1,20 @@
-High Lunge
+# Yoga  
 
+## Descripción  
+El yoga es una disciplina que combina posturas físicas, respiración y meditación para mejorar el bienestar físico y mental.  
 
-Descripcion:
+## Beneficios  
+- Aumenta la flexibilidad y el equilibrio.  
+- Reduce el estrés y mejora la concentración.  
+- Fortalece los músculos y mejora la postura.  
 
-La estocada alta, también conocida como Crescent High Lunge o Ashta Chandrasana,
-es una postura de yoga que fortalece y flexiona el cuerpo. Es una postura de pie
-que se puede hacer en todos los niveles de práctica. 
+## Instrucciones  
+1. Comienza con una respiración profunda y un calentamiento ligero.  
+2. Realiza posturas como el perro boca abajo, la cobra y la postura del árbol.  
+3. Mantén cada postura entre 15-30 segundos con respiración controlada.  
+4. Finaliza con una relajación en postura de savasana.  
 
-
-Beneficios: 
-
-Mejora el sistema respiratorio y circulatorio, Flexiona las articulaciones, 
-Tonifica todo el cuerpo, Mejora la estabilidad y el equilibrio, Reduce la rigidez en los hombros y el cuello. 
-
-
-Instrucciones: 
-
-
-Comienza en la postura Tadasana (montaña alta).
-Da un paso hacia atrás con un pie, con el talón despegado del suelo.
-Dobla la rodilla de la pierna que está hacia atrás.
-Presiona la planta del pie contra el suelo.
-Levanta los brazos por encima de la cabeza.
-Mantén la postura durante unas cuantas respiraciones.
-Repite con el otro lado.
-
-
-Consejos y Precauciones:
-
-Contraindicaciones Lesiones en las rodillas o las caderas, Problemas de presión arterial, Problemas de equilibrio. 
-
-
-No arquear demasiado la zona lumbar.
-
-
-Mantener el coxis estirado.
-
-
-Que la rodilla delantera no caiga hacia el lado del dedo gordo del pie.
+## Consejos  
+- Enfócate en la respiración para mejorar la concentración.  
+- No fuerces las posturas; avanza a tu propio ritmo.  
+- Usa una esterilla para mayor comodidad y estabilidad.  
