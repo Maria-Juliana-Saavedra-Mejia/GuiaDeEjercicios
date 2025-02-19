@@ -8,7 +8,7 @@ vertebral y la flexibilidad de los isquiotibiales.
 
 Beneficios:
 
-
+Te ayudará a mejorar la movilidad de la columna, a fortalecer tus abdominales y aumentar la flexibilidad.
 
 Instrucciones:
 
