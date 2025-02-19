@@ -28,3 +28,13 @@ Repite con el otro lado.
 
 Consejos y Precauciones:
 
+Contraindicaciones Lesiones en las rodillas o las caderas, Problemas de presión arterial, Problemas de equilibrio. 
+
+
+No arquear demasiado la zona lumbar.
+
+
+Mantener el coxis estirado.
+
+
+Que la rodilla delantera no caiga hacia el lado del dedo gordo del pie.
