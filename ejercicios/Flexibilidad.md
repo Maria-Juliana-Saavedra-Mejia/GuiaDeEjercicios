@@ -30,8 +30,19 @@ Mejora la salud emocional: Mejora la salud emocional y la toma de decisiones.
 
 Instrucciones:
 
+Acuéstate boca arriba con las rodillas flexionadas y los pies apoyados en el suelo.
 
+Mantén los hombros sobre el suelo.
 
+Gira lentamente las rodillas flexionadas hacia un lado.
+
+Mantén esa posición de 5 a 10 segundos.
+
+Regresa lentamente a la posición inicial.
+
+Repite el ejercicio hacia el lado opuesto.
+
+Repite cada estiramiento entre 2 y 3 veces.
 
 Consejos y precauciones:
 
