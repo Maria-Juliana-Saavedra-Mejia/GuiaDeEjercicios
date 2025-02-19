@@ -24,4 +24,4 @@ Controla la caída y permite que se balancee entre tus piernas.
 
 Consejos y Precauciones: 
 
-
+Extiende toda la cadera. Empuja con los muslos. Aprieta el torso y los glúteos.
