@@ -24,5 +24,8 @@ Repite 8 veces.
 
 Consejos y precauciones:
 
-
+Realiza el movimiento articulando las vértebras de una en una.
+No realices impulsos ni con el cuello ni con los brazos.
+Activa tus piernas, empujando los talones hacia el suelo.
+Controla bien la respiración.
 
