@@ -27,7 +27,7 @@ El CrossFit es un sistema de entrenamiento de alta intensidad que combina ejerci
 7. Enfréntate al miedo a caerte, a las lesiones, al no puedo hacerlo, al “esto es para otros”, al “no puedo con ese peso” y, sobre todo, al fracaso.
 
 
-Consejos y Precauciones: 
+## Consejos y Precauciones: 
 
 Para practicar CrossFit de forma segura, es importante tomar en cuenta el equipo, el calentamiento, el descanso y la supervisión de un profesional. 
 Equipo 
