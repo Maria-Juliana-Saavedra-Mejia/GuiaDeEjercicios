@@ -9,7 +9,7 @@ Un ejercicio explosivo para todo el cuerpo. Ayuda a mejorar la resistencia y a d
 Beneficios:
 
 
-
+También se pueden mejorar la coordinación, la flexibilidad y la capacidad cardiovascular. 
 
 
 Instrucciones:
