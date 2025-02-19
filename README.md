@@ -1,4 +1,4 @@
-# Guía de Ejercicios Físicos
+# Guía de Ejercicios Físicos SIN EDITAR
 
 Bienvenido a nuestra guía de ejercicios físicos, donde compartimos descripciones y beneficios de diferentes tipos de ejercicios.
 
