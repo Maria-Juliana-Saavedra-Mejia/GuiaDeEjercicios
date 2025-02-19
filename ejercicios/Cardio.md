@@ -42,3 +42,17 @@ los brazos por encima de la cabeza. Vuelve a la posición inicial, con salto o s
 
 Consejos y Precauciones: 
  
+Calienta tu cuerpo con una caminata rápida.
+Realiza los saltos en una superficie plana y uniforme, como el césped o el caucho.
+Usa calzado deportivo que te brinde apoyo.
+Mantén una postura erguida, con los hombros alineados con las caderas.
+Mantén las rodillas ligeramente flexionadas y evita bloquearlas.
+Aterriza suavemente con cada salto.
+Contrae los músculos centrales durante el ejercicio para estabilizar el cuerpo.
+Mantén un ritmo constante durante todas tus series.
+
+Si tienes problemas articulares en las piernas, consulta a un profesional antes de realizar saltos de tijera. 
+Si tienes incontinencia urinaria o pérdidas de orina, consulta a un profesional antes de realizar saltos de tijera. 
+Si sientes dolor, haz una pausa o detén la sesión por completo. 
+Los principiantes pueden comenzar con 10 a 15 repeticiones por serie y aumentar gradualmente. 
+Mantén el movimiento fluido y controlado para minimizar el riesgo de lesiones. 
