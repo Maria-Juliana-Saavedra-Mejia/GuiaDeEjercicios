@@ -15,7 +15,8 @@ Ayuda a mejorar el tiempo de la brazada
 
 Instrucciones:
 
-
+Cuando una mano llega al frente, inicias el ciclo con el otro brazo
+Esta manera de nadar lo puedes ver con frecuencia en nadadores de distancia
 
 Consejos y Precauciones:
 
