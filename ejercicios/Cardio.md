@@ -32,7 +32,11 @@ Fortalecen el core: Fortalecen el core.
 
 Instrucciones:
 
-
+Ponte en pie con los pies separados a la anchura de la cadera y los brazos a los lados. Dobla
+las rodillas e impúlsate con los pies para saltar. Cuando saltes, abre las piernas a los lados hasta
+que la distancia entre ellas supere un poco la anchura de los hombros, y luego vuelve a saltar hacia el centro. 
+Una variación sería eliminar el salto y simplemente abrir y cerrar piernas a los lados. Al mismo tiempo, estira
+los brazos por encima de la cabeza. Vuelve a la posición inicial, con salto o sin él, y repite el movimiento.
 
 
 
