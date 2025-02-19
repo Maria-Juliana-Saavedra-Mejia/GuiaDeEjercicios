@@ -33,6 +33,33 @@ Aumento de la confianza y la autoestima: Mejoran la percepción que tienen las p
 
 Instrucciones:
 
+Paso a paso 
+
+Coloca los pies a la altura de los hombros.
+
+Inhala.
+
+Activa el abdomen.
+
+Flexiona las rodillas, caderas y tobillos hasta que los muslos estén paralelos al suelo.
+
+Exhala mientras regresas a la posición inicial.
+
+Consejos adicionales 
+
+Mantén los talones apoyados en el suelo en todo momento.
+
+No curves la espalda.
+
+Cuida tu zona lumbar.
+
+Mantén los hombros hacia atrás.
+
+Si vas a hacer sentadillas con mucha carga, puedes tomar aire, aguantarlo al descender y botarlo al subir.
+
+Si no te sientes cómodo haciendo muchas sentadillas, empieza con un número con el que te sientas cómodo.
+
+Si sientes dolor o molestia, para.
 
 
 
