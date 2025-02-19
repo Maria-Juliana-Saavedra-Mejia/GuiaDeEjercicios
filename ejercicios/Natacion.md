@@ -1,27 +1,20 @@
-Nadar a punto muerto
+# Natación  
 
-Descripcion:
-Nadar a punto muerto es una técnica de natación que consiste en no bracear con un
-brazo hasta que el otro haya completado la brazada. Es un ejercicio muy usado en la 
-técnica de crol, especialmente en etapas iniciales. 
+## Descripción  
+La natación es un deporte completo que mejora la resistencia, la fuerza y la coordinación, mientras reduce el impacto en las articulaciones.  
 
+## Beneficios  
+- Fortalece el sistema cardiovascular y muscular.  
+- Mejora la movilidad y la coordinación.  
+- Reduce el estrés y el impacto en las articulaciones.  
 
-Beneficios: 
+## Instrucciones  
+1. Comienza con un calentamiento en seco y movimientos articulares.  
+2. Nada entre 30-60 minutos, alternando estilos como crol, espalda, pecho y mariposa.  
+3. Descansa entre series según tu nivel de resistencia.  
+4. Finaliza con estiramientos fuera del agua para relajar los músculos.  
 
-Ayuda a mejorar la técnica de brazada
-Permite practicar la postura general del tren superior
-Ayuda a ver cuánto avanzas por cada brazada que das
-Ayuda a mejorar el tiempo de la brazada
-Mayor fuerza, mayor capacidad pulmonar, mejor funcionamiento del corazón
-Mayor amplitud de movimiento, mejor salud ósea, fortalecimiento del tronco y reducción del dolor de espalda
-
-Instrucciones:
-
-Cuando una mano llega al frente, inicias el ciclo con el otro brazo
-Esta manera de nadar lo puedes ver con frecuencia en nadadores de distancia
-
-Consejos y Precauciones:
-
-Precalentar y estirar siempre antes de empezar a nadar. Reducir el tiempo de entrenamiento si les duelen los hombros, el cuello o tienen cualquier otro tipo de dolor. Pueden probar a hacer un tipo de brazada diferente o hacer alguna actividad fuera de la piscina para mantenerse en forma.
-
-
+## Consejos  
+- Mantén una técnica adecuada para mayor eficiencia.  
+- Controla la respiración y la patada en cada estilo.  
+- Hidrátate bien, incluso si no sientes sed.  
