@@ -22,5 +22,6 @@ Esta manera de nadar lo puedes ver con frecuencia en nadadores de distancia
 
 Consejos y Precauciones:
 
+Precalentar y estirar siempre antes de empezar a nadar. Reducir el tiempo de entrenamiento si les duelen los hombros, el cuello o tienen cualquier otro tipo de dolor. Pueden probar a hacer un tipo de brazada diferente o hacer alguna actividad fuera de la piscina para mantenerse en forma.
 
 
