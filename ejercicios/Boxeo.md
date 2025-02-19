@@ -19,4 +19,12 @@ El ganador se determina según la cantidad de golpes, su precisión y poder, y l
 
 Consejos y Precauciones: 
 
+Mantén las manos altas
+Mantén el mentón replegado
+Concéntrate en tu mirada
+Aprende a pegar exactamente dónde quieres
+No subestimes a tu adversario
+Pega duro, arroje el golpe, no lo empuje
+Pegue a través del objetivo, no hasta él
+Avance cuando pegue, es inconveniente pegar en retirada
 
