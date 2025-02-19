@@ -28,5 +28,8 @@ Respira lenta y profundamente.
 
 Consejos y precauciones: 
 
-
+Evita elevar demasiado la cadera. 
+Si te resulta muy difícil, puedes apoyar las rodillas en lugar de los pies. 
+Puedes empezar con planchas estáticas y luego ir quitando apoyos. 
+Puedes hacer planchas de 10 a 15 segundos, descansar 30 segundos y repetir de 3 a 5 series. 
 
