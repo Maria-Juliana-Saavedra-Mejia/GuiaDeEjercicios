@@ -17,7 +17,14 @@ Promueve el compañerismo y el sentido de comunidad.
 
 Instrucciones: 
 
-
+Respira dos veces en cada thruster.
+Mantén los codos elevados.
+Sube con potencia.
+Agarra bien la barra en todo el recorrido.
+Mantén la espalda neutra en todo momento.
+Sé puntual.
+Escucha al coach y atiende a sus explicaciones.
+Enfréntate al miedo a caerte, a las lesiones, al no puedo hacerlo, al “esto es para otros”, al “no puedo con ese peso” y, sobre todo, al fracaso.
 
 
 Consejos y Precauciones: 
