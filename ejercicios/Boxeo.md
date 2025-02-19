@@ -11,6 +11,11 @@ Reduce la presión arterial y el riesgo de padecer enfermedades cardiovasculares
 
 Instrucciones:
 
+Se practica en un ring de boxeo
+Los boxeadores usan equipo de protección como guantes, vendas y protectores bucales
+El combate se desarrolla durante un tiempo predeterminado
+Los jueces puntúan la pelea
+El ganador se determina según la cantidad de golpes, su precisión y poder, y la estrategia general
 
 Consejos y Precauciones: 
 
