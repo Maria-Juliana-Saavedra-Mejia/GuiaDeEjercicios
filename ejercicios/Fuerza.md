@@ -1,75 +1,21 @@
-Sentadillas
+# Fuerza  
 
-Descripcion:
+## Descripción  
+Mejorar la fuerza muscular implica realizar ejercicios que aumenten la resistencia y el tamaño de los músculos, utilizando pesas, bandas de resistencia o el propio peso corporal.  
 
-Las sentadillas se consideran esenciales en cualquier entrenamiento fitness de fuerza. 
-Sirven para fortalecer los músculos y las articulaciones de nuestras piernas, y podemos encontrar 
-variantes para principiantes, para nivel intermedio y otras más avanzadas, a las que se les agrega
-peso u otras dificultades.
+## Beneficios  
+- Aumenta la masa muscular y la resistencia.  
+- Mejora la postura y la densidad ósea.  
+- Acelera el metabolismo y favorece la quema de grasa.  
 
+## Instrucciones  
+1. Comienza con un calentamiento de 5-10 minutos.  
+2. Realiza ejercicios como sentadillas, press de banca, peso muerto y flexiones.  
+3. Completa de 3 a 5 series de 8-12 repeticiones por ejercicio.  
+4. Descansa entre series de 30-90 segundos según la intensidad.  
+5. Finaliza con estiramientos para favorecer la recuperación muscular.  
 
-Beneficios: 
-
-
-Fortalecimiento muscular: Aumentan la masa muscular y el tono, y reducen el riesgo de lesiones. 
-
-Mejora de la densidad ósea: Reducen el riesgo de osteoporosis y fracturas. 
-
-Reducción del riesgo de enfermedades: Disminuyen el riesgo de padecer enfermedades cardiovasculares,
- diabetes, hipertensión arterial y obesidad. 
-
-Prevención de lesiones: Fortalecen los tendones y el tejido conectivo, y protegen las articulaciones. 
-
-Mejora de la calidad de vida: Ayudan a controlar el peso, a mejorar la capacidad de hacer las actividades 
-cotidianas y a reducir el riesgo de caídas. 
-
-Mejora de la salud mental: Ayudan a mejorar los síntomas de la depresión y la ansiedad. 
-
-Alivio del dolor crónico: Fortalecer los músculos del core y la espalda ayuda a corregir la postura,
- reduciendo molestias en áreas comunes como el cuello, los hombros y la zona lumbar. 
-
-Aumento de la confianza y la autoestima: Mejoran la percepción que tienen las personas sobre sí mismas y sobre sus capacidades. 
-
-
-Instrucciones:
-
-Paso a paso 
-
-Coloca los pies a la altura de los hombros.
-
-Inhala.
-
-Activa el abdomen.
-
-Flexiona las rodillas, caderas y tobillos hasta que los muslos estén paralelos al suelo.
-
-Exhala mientras regresas a la posición inicial.
-
-Consejos adicionales 
-
-Mantén los talones apoyados en el suelo en todo momento.
-
-No curves la espalda.
-
-Cuida tu zona lumbar.
-
-Mantén los hombros hacia atrás.
-
-Si vas a hacer sentadillas con mucha carga, puedes tomar aire, aguantarlo al descender y botarlo al subir.
-
-Si no te sientes cómodo haciendo muchas sentadillas, empieza con un número con el que te sientas cómodo.
-
-Si sientes dolor o molestia, para.
-
-
-
-Consejos y Precauciones: 
-
-Para realizar sentadillas de manera correcta, es importante encontrar la postura adecuada,
-cuidar la trayectoria de las rodillas y fortalecer el abdomen.
-
-Precauciones 
-Calienta los músculos antes de hacer ejercicio
-No hagas sentadillas si te duele
-Si eres principiante, puedes hacer cinco series de 10 repeticiones
-Descansa un día entre cada entrenamiento 
+## Consejos  
+- Mantén una técnica adecuada para evitar lesiones.  
+- Aumenta la carga progresivamente según tu nivel.  
+- Descansa lo suficiente para una recuperación óptima.  
