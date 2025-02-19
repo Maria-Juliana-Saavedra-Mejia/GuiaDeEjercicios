@@ -44,8 +44,28 @@ Repite el ejercicio hacia el lado opuesto.
 
 Repite cada estiramiento entre 2 y 3 veces.
 
+
+
+
 Consejos y precauciones:
 
-
+Consejos para calentar y estirar 
+Hacer ejercicio aeróbico, como caminar o nadar
+Realizar estiramientos suaves y regulares
+Evitar la hiperextensión y los movimientos bruscos
+Escuchar al cuerpo para evitar sobrecargar la columna
+Consejos para mantener una buena postura
+Evitar encorvarse al estar parado o sentado 
+Sentarse derecho, con la espalda apoyada en el respaldo de la silla 
+Apoyar los pies en el suelo, con las rodillas un poco más elevadas que las caderas 
+Mantener la postura correcta al levantar objetos 
+Otros consejos 
+Evitar el exceso de peso
+Cuidar la alimentación para mantener los huesos y músculos fuertes
+Manejar el estrés
+Evitar situaciones que puedan generar tensión muscular
+Recomendaciones de profesionales de la salud
+Si hay un dolor agudo o crónico, es recomendable consultar a un fisioterapeuta o médico 
+Hay ejercicios que deben ser ejecutados de acuerdo a la situación de cada persona 
 
 
