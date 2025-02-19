@@ -1,35 +1,20 @@
-Plancha
+# Entrenamiento Funcional
 
-Descripcion: 
+## Descripción
+El entrenamiento funcional es un tipo de ejercicio que mejora la fuerza, la estabilidad y la movilidad mediante movimientos que imitan actividades de la vida diaria.
 
-La plancha es un ejercicio anaeróbico que consiste en mantener el cuerpo apoyado en
-los antebrazos y los pies, mientras se empuja el cuerpo hacia arriba. Es un ejercicio
-estático que fortalece y tonifica los músculos del tronco, los brazos y las piernas. 
+## Beneficios
+- Mejora la coordinación y el equilibrio.
+- Aumenta la fuerza y la resistencia muscular.
+- Reduce el riesgo de lesiones en actividades cotidianas y deportivas.
 
-Beneficios:
+## Instrucciones
+1. Comienza con un calentamiento de 5-10 minutos.
+2. Realiza ejercicios funcionales como sentadillas, burpees, planchas y saltos en intervalos de 30-45 segundos.
+3. Completa de 3 a 5 rondas según tu nivel de condición física.
+4. Finaliza con estiramientos y una fase de enfriamiento.
 
-Fortalece los abdominales, la espalda, los hombros, los brazos, los glúteos y las piernas.
-Mejora el equilibrio y la estabilidad.
-Aumenta la flexibilidad.
-Reduce el dolor de espalda.
-
-Instrucciones:
-
-Coloca una esterilla en el suelo.
-Túmbate boca abajo.
-Apoya el peso del cuerpo sobre los antebrazos.
-Flexiona los brazos hacia fuera y rectos.
-Aprieta los omoplatos.
-Abre la espalda para que el cuerpo quede erguido.
-Presiona los muslos hacia arriba y estira los talones.
-Mantén el centro del cuerpo contraído y los abdominales tensos.
-Respira lenta y profundamente.
-
-
-Consejos y precauciones: 
-
-Evita elevar demasiado la cadera. 
-Si te resulta muy difícil, puedes apoyar las rodillas en lugar de los pies. 
-Puedes empezar con planchas estáticas y luego ir quitando apoyos. 
-Puedes hacer planchas de 10 a 15 segundos, descansar 30 segundos y repetir de 3 a 5 series. 
-
+## Consejos
+- Mantén una postura adecuada en cada ejercicio.
+- Ajusta la intensidad según tu nivel.
+- Descansa lo suficiente entre rondas para evitar fatiga excesiva.
