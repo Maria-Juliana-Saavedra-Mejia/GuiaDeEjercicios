@@ -8,6 +8,10 @@ estático que fortalece y tonifica los músculos del tronco, los brazos y las pi
 
 Beneficios:
 
+Fortalece los abdominales, la espalda, los hombros, los brazos, los glúteos y las piernas.
+Mejora el equilibrio y la estabilidad.
+Aumenta la flexibilidad.
+Reduce el dolor de espalda.
 
 Instrucciones
 
