@@ -65,3 +65,11 @@ Si sientes dolor o molestia, para.
 
 Consejos y Precauciones: 
 
+Para realizar sentadillas de manera correcta, es importante encontrar la postura adecuada,
+cuidar la trayectoria de las rodillas y fortalecer el abdomen.
+
+Precauciones 
+Calienta los músculos antes de hacer ejercicio
+No hagas sentadillas si te duele
+Si eres principiante, puedes hacer cinco series de 10 repeticiones
+Descansa un día entre cada entrenamiento 
