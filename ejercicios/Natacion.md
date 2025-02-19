@@ -12,6 +12,8 @@ Ayuda a mejorar la técnica de brazada
 Permite practicar la postura general del tren superior
 Ayuda a ver cuánto avanzas por cada brazada que das
 Ayuda a mejorar el tiempo de la brazada
+Mayor fuerza, mayor capacidad pulmonar, mejor funcionamiento del corazón
+Mayor amplitud de movimiento, mejor salud ósea, fortalecimiento del tronco y reducción del dolor de espalda
 
 Instrucciones:
 
