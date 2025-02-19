@@ -13,9 +13,20 @@ Mejora el equilibrio y la estabilidad.
 Aumenta la flexibilidad.
 Reduce el dolor de espalda.
 
-Instrucciones
+Instrucciones:
+
+Coloca una esterilla en el suelo.
+Túmbate boca abajo.
+Apoya el peso del cuerpo sobre los antebrazos.
+Flexiona los brazos hacia fuera y rectos.
+Aprieta los omoplatos.
+Abre la espalda para que el cuerpo quede erguido.
+Presiona los muslos hacia arriba y estira los talones.
+Mantén el centro del cuerpo contraído y los abdominales tensos.
+Respira lenta y profundamente.
 
 
 Consejos y precauciones: 
+
 
 
