@@ -17,6 +17,13 @@ Tonifica todo el cuerpo, Mejora la estabilidad y el equilibrio, Reduce la rigide
 Instrucciones: 
 
 
+Comienza en la postura Tadasana (montaña alta).
+Da un paso hacia atrás con un pie, con el talón despegado del suelo.
+Dobla la rodilla de la pierna que está hacia atrás.
+Presiona la planta del pie contra el suelo.
+Levanta los brazos por encima de la cabeza.
+Mantén la postura durante unas cuantas respiraciones.
+Repite con el otro lado.
 
 
 Consejos y Precauciones:
